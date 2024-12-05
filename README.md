@@ -10,3 +10,5 @@ Kontak: 082214297187
 https://kuekeringcimahipremium.blogspot.com/2024/12/082214297187-kue-kering-cimahi-kekinian.html.
 
 https://kuekeringcimahipremium.blogspot.com/
+
+https://youtube.com/shorts/KRybujhdxIY?feature=share
